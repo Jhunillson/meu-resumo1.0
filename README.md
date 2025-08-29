@@ -1,1 +1,0 @@
-# meu-resumo1.0
